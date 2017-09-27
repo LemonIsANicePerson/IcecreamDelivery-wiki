@@ -6,7 +6,7 @@
 **moosh.#0585**
      » Manager; Please don't ping. "Building the future and keeping the past alive are one and the same thing."
 
-**??? ????#4599** (keito name here)
+**ケイト ᵇᵉᵗᵃ#4599**
      » Manager
 
 **PinMyPin#6536**
