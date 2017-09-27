@@ -1,16 +1,16 @@
 **__What do I do?__**
 
-     » Accept the order (Look at `Should I accept?` for more information on what to accept.)
+» Accept the order (Look at `Should I accept?` for more information on what to accept.)
 
-     » Find or create their order (Photoshop, Paint, etc. A nice free program to use is Medibang Paint Pro and Paint if you can't afford photoshop but still want to make/collage orders. Paint is easier to use but Medibang has more advanced features, but the best thing is Google.)
+» Find or create their order (Photoshop, Paint, etc. A nice free program to use is Medibang Paint Pro and Paint if you can't afford photoshop but still want to make/collage orders. Paint is easier to use but Medibang has more advanced features, but the best thing is Google.)
 
-     » Deliver the order (An invite link will be sent to your via DMs.)
+» Deliver the order (An invite link will be sent to your via DMs.)
 
-     » Send the order over to the customer along with a nice message! An example:
+» Send the order over to the customer along with a nice message! An example:
 
 "Hello @Fires#1043! Thanks for ordering with the Ice Cream Delivery bot, enjoy your order and be sure to leave some feedback with <feedback `{feedback}`!"
 
-     » Leave the server after unless you know they're okay with you staying.
+» Leave the server after unless you know they're okay with you staying.
 
 **EXTRA**
 If the server doesn't allow you to send images, send the link instead. However;
