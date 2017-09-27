@@ -1,5 +1,7 @@
 # Artists read the following in order 
 
+## these were kindly prepared by Lemon, the true best girl.
+
 [Main guidelines](https://github.com/USRDiscordBots/IcecreamDelivery-wiki/blob/master/guidelines.md)
 
 [What do I do?](https://github.com/USRDiscordBots/IcecreamDelivery-wiki/blob/master/what-do-do.md)
