@@ -1,6 +1,6 @@
 # Artists read the following in order 
 
-## these were kindly prepared by Lemon, the true best girl.
+## these were kindly prepared by Lemon, the best deliveryer man.
 
 [Main guidelines](https://github.com/USRDiscordBots/IcecreamDelivery-wiki/blob/master/guidelines.md)
 
