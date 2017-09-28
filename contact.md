@@ -7,7 +7,7 @@
      » Manager; Please don't ping. "Building the future and keeping the past alive are one and the same thing."
 
 **ケイト ᵇᵉᵗᵃ#4599**
-     » Manager; not the best girl;
+     » Manager; DEFINTIELY THE BEST GIRL, BEST OF BEST GIRLS;
 
 **PinMyPin#6536**
      » Manager; dickhead is my name, i've always been one.
