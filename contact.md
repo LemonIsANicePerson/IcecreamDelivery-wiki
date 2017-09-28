@@ -17,6 +17,3 @@
 
 **Secretary ?#7739**
      » Fires' Secretary; Ping me if you need any help with anything!
-
-**Cato#1447**
-     » Fires' Night Secretary; Worthless scum, message me if you need help.
