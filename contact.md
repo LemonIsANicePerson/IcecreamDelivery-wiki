@@ -3,7 +3,7 @@
 **Fires#1043**
      » Owner of the server & creator of bot; Don't ping me.
      
-**Secretary ?#7739**
+**Secretary ✿#7739**
      » Fires' Secretary(yes thats a literal thing, mostly a joke but still cool dude); Ping me if you need any help with anything!
 
 **moosh.#0585**
