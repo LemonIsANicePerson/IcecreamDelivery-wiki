@@ -1,4 +1,4 @@
-Please fill this out and send it to Fires#1034
+Please fill this out and send it to one of the managers. (lemon.exe#1755, moosh.#0585, Fires#1043)
 
 Why do you want to apply for the icecream artist role?
 
